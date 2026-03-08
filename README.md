@@ -1,0 +1,2 @@
+# SIGED-certificado-secundaria-autenticacion-CACR770711HMNHRG04
+CACR770711HMNHRG04
